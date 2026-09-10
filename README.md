@@ -1,8 +1,8 @@
 <img src="https://file.garden/alqc1dqplE9QfpOY/Untitled304_20260910022751.png" width="250" align="left">
 
 <p align="left">
-　　　　　　　　　　　　　sam <br>
-　　　　　　　　　　bodily 18+, he/any <br>
+　　　　　　　　　　　　i'm sam <br>
+　　　　　　　　　　18+, he/any prns <br>
 　　　　　　　　syshost. spamton fictive <br>
 　　　　　　　 c+h always encouraged, bmf !! <br>
 　　　　　　<a href="https://github.com/anthonytenna">@anthonytenna</a> is my bestest friend
